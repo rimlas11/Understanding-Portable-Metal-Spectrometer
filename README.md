@@ -1,0 +1,2 @@
+# Understanding-Portable-Metal-Spectrometer
+A journey of thousand miles begins with a single step, and we have a belief in this. We are one of the younger organizations, which is collaborating with various businesses to distribute innovative products. Our thirst for development quenches when we get new ideas for innovations. With a bird’s eye view, we keep a check on our recent updates and innovation. We are jubilant to announce that we are on the way to become the leading producers of the portable metal spectrometer!
